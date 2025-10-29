@@ -1,2 +1,0 @@
-# agriculture
-plan and budget
